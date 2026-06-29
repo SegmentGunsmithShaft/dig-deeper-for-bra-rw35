@@ -1,4 +1,4 @@
-
+no-ban dig deeper for brainrots Scripts offers the most advanced dig deeper for brainrots Script, with auto-sell and esp. Perfect for dominating any
 
 
 
